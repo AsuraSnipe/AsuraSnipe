@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @AsuraSnipe
 - 👀 I’m A SELLER
 - 🌱 I’m SNIPEBOT CREATOR
-- 💞️ I’m LOOKING FOR Buyers
 - 📫 How to reach me TG:@ILlBEYOURSERVANT
 
 <!---
